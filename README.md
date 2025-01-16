@@ -7,7 +7,6 @@
 
 
 
-- 🎓 I am currently about to finish my university degree.
 - 👨🏻‍💻 **Systems and computer engineering.**
 - 👯 I am looking to collaborate with people.
 - 💬 Ask me what you need.! 𝙸 𝚊𝚖 𝚑𝚊𝚙𝚙𝚢 𝚝𝚘 𝚑𝚎𝚕𝚙.
